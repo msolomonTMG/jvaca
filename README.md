@@ -3,4 +3,4 @@ adskfjlakjfd
 =====
 lets go
 
-ready npw
+ready now
